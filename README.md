@@ -3,7 +3,7 @@
 - 🌱 We're currently learning so many things.
 - 💞️ We're looking to collaborate on business.
 - 📫 How to reach us info@netcallservices.com
-- 😄 Pronouns: They
+- 😄 Pronouns: They/them
 - ⚡ Fun fact: all of the above.
 
 <!---
